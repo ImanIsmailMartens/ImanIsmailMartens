@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on UI/UX
 - 📫 How to reach me : linkedin
 - 😄 Pronouns: ...
-- ⚡ Fun fact: I am a cat mum and I am so much in love with my furbaby 
+- ⚡ Fun fact: I am a cat lover
 
 <!---
 ImanIsmailMartens/ImanIsmailMartens is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
